@@ -1,0 +1,2 @@
+# premium-n-scale-layout-001-n-scale-layout-micro-track-c
+Stop juggling spreadsheets, scraps of paper, and half-finished sketches. The N Scale Layout &amp; Micro Track Craft Hub is your single source of truth for every nail, rail, and turnout in your micro empire.  This Notion template consolidates track planning, rolling stock inventory, parts tracking, and build documentation into one intuitive workspace. D
